@@ -1,10 +1,10 @@
 ## 发布地址:www.baozouj8.com
 
 ![Image](bg.jpg)
-## 1.  [狼友视频](https://www.baozou11.xyz/chengren18R.html)
-## 2.  [日常追番](https://www.baozou11.xyz/manhua.html)
-## 3.  [精选狼漫](https://www.baozou11.xyz/baozoulangman.html)
-## 4.  [备用线路](https://www.baozouj9.com/)
+## 1.  [移动线路](https://www.baozouj13.xyz)
+## 2.  [电信线路](https://www.baozou11.xyz/zhongweidou.html)
+## 3.  [动漫追番](https://www.baozou11.xyz/manhua.html)
+## 4.  [精彩小说](https://www.baozou11.xyz/baozoulangman.html)
 
 
 ## 《更新时间：2021-5-6》 更多线路陆续增加....
